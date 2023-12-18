@@ -1,1 +1,2 @@
-![image](https://github.com/Chathuranga-Niroshana/Greenade-web-template/assets/134888303/3023fb62-3f4f-4f44-9334-5fe8ed824cf2)
+![image](https://github.com/Chathuranga-Niroshana/Greenade-web-template/assets/134888303/44e049ef-9df2-45a3-82eb-d59efdb8c12c)
+
